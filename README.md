@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @Elic3
+- 👋 Olá, meu nome é Lucca. Sou iniciante em programação e sempre que tiver algo novo publicarei aqui para que outras pessoas possam ver!😊
